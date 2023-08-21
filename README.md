@@ -60,10 +60,6 @@ You may direct any questions or enquiries with respect to our privacy policy or 
 
 contacting:
 
- 
-
-[Contact Information]
+ https://kidakefoundation.org/contacts
 
  
-
-Additional Information
